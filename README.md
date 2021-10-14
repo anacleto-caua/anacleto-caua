@@ -1,6 +1,6 @@
-## Cauã Anacleto
+# Cauã Anacleto
 
-I'm Basically this 🦜
+## I'm Basically this 🦜.
 
 - 🥗 I’m currently working on a regional recipes website using Laravel and MySQL.
 - 🌱 I’m currently learning more about Laravel.
