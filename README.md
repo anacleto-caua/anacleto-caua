@@ -9,5 +9,5 @@
 - 📫 How to reach me: anacleto.for.work@gmail.com.
 - ⚡ Fun fact: nature lover, especially Amazon fauna🦜.
 
-Linkedin->[linkedin.com/in/caua-anacleto/](linkedin.com/in/caua-anacleto/)
+Linkedin->[linkedin.com/in/caua-anacleto/](linkedin.com/in/caua-anacleto/)\
 Email->[anacleto.for.work@gmail.com](mailto:anacleto.for.work@gmail.com)
