@@ -10,3 +10,4 @@
 - ⚡ Fun fact: nature lover, especially Amazon fauna🦜.
 
 Linkedin->[linkedin.com/in/caua-anacleto/](linkedin.com/in/caua-anacleto/)
+Email->[anacleto.for.work@gmail.com](mailto:anacleto.for.work@gmail.com)
